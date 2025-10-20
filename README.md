@@ -1,4 +1,4 @@
-# Hi there, I'm Harshitha Karri! 👋
+# Harshitha Karri! 👋
 
 ## 🚀 AI/ML | Computer Vision | Web Dev | BTech CS @ DRK IST
 
