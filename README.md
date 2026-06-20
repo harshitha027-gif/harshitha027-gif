@@ -7,7 +7,7 @@ Aspiring AI/ML engineer passionate about Computer Vision, Violence Detection, an
 
 📍 **Location:** Hyderabad, India  
 📧 **Email:** harshithakarri61@gmail.com  
-💼 **LinkedIn:** [Connect with me](https://linkedin.com/in/harshitha-k-bb6b30319/)
+💼 **LinkedIn:** [Connect with me](https://www.linkedin.com/in/harshitha-karri/)
 
 ---
 
